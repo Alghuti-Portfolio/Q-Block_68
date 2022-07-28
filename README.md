@@ -2,4 +2,4 @@
 N.American Territory 
 
 
-Currently looking for [Development Managers](https://github.com/Alghuti-Portfolio/SOVEREIGN.CREDIT/blob/c2d897fc53e0b7b0130cf86828a30f04bbbbe285/Aug4_22%20Letter%20Agreement%20.pdf) to open an Area Corporation in every region in the continental United States.
+Recruiting [Development Managers](https://github.com/Alghuti-Portfolio/Q-Block_68/blob/fe1a0e6b0e04932e36370cbde1b1f3e0d53abd8b/Files/Aug4_22_Letter_Agreement%20.pdf) to open an Area Corporation for every region in the continental United States.
